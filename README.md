@@ -23,9 +23,21 @@ After a short tea break, we were split into 15 people and sent to start our grou
 Then we got new chest numbers. This time my chest number was 6. We were asked to submit our phones after informing our families. We went to fill our PIQ forms directly after getting screened in. Then we were taken to the accommodation. By 7 PM we were asked to have dinner, I had severe cold and continuous sneeze at the end of the day. So, slept early to get energy for next day. 
 
 ## Day 2
-On the next day, we were asked to complete our breakfast by 6.30AM and report at teat point. Then they took us to the AV hall for the psychology.
+On the next day, we were asked to complete our breakfast by 6.30AM and report at teat point. Then they took us to the AV hall for the psychology. There were 4 tests to analyze our mind. The time was very limited to think and write. This was very challenging.
 
-### TAT – Thematic Appreciation Test
-### WAT – Word Association Test
-### SRT – Situation Reaction Test
-### SD – Self description   
+### TAT (Thematic Appreciation Test)
+There were 12 pictures shown in total. Each picture was shown for 30 sec and 4 min to write the story. The 12th picture was blank, and we need to write the story in own.
+
+### WAT (Word Association Test)
+There were 60 words in total. Each word was shown for 15 sec only. We must see and write a sentence in that 15 sec. Since after the 15 sec it will change to next word.
+
+### SRT (Situation Reaction Test)
+In this SRT, we will be given 60 different situations and we need to write sentences to complete the situation. This was quite challenging since we were given only 10 min for this. I wrote around 53 out of 60.
+
+### SD (Self description)
+In this section, we need to write 5 questions in 10 min.
+1.	What do your parents think about yourself?|
+2.	What do your manager think about yourself?|
+3.	What do your colleague think about yourself?|
+4.	What do you think about yourself?|
+5.	What would you want to be in life?| 
