@@ -56,7 +56,7 @@ Few questions include: -
 8.	How did you prepare for SSB? What are the sources you had? 
 9.	Questions related Indian navy like, Navy exercise? Ships? Aircraft Carriers? Submarines? Missiles? Navy Operations?
 10.	What are the three oceans surrounded by the peninsula? With directions?
-11.	What are the ports in eastern side apart from Chennai and Vishakhapatnam? What are the ports in western side apart from Mumbai and Kochi?
+11.	What are the ports in eastern side apart from Chennai and Vishakhapatnam? Ports in western side apart from Mumbai and Kochi?
 12.	What are the sports that you are interested? Tell me if your team does not co-operate how will you tackle?
 13.	What kind of friends do you like to keep with you?
 14.	How does a computer understand the language given to it?
