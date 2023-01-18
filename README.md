@@ -2,7 +2,7 @@
 
 Generally, SSB interview is conducted for 5 days in a stretch. Let me explain the entire process and my experience over it.
 * Day 1 - OIR & PPDT
-* Day 2 - Phycology Test (TAT, WAT, SRT, SD) + Interview
+* Day 2 - Psychology Test (TAT, WAT, SRT, SD) + Interview
 * Day 3 - GTO 1(GD1, GD2, PGPT, GT, Snake race, Half GT, lecturette)
 * Day 4 - GTO 2(IO, Command task, Full Group Task)
 * Day 5 - Conference
