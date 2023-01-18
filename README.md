@@ -44,3 +44,23 @@ In this section, we need to write 5 questions in 10 min.
 
 ### Interview
 As soon as we completed the psychology test, they called few chest numbers to get ready for the interview. And I was the first person to get interviewed in my batch. The interview was all about the PIQ forms, General Knowledge, and defence related questions. 
+
+Few questions include: -
+1.	Tell me about your school, college marks, friends, what kind of teachers you like and why?
+2.	How much are you earning? What are you doing with that money? How do you support your family financially?
+3.	Tell me about your family? How do you support them? In what way are you responsible?
+4.	If I call your manager and ask about you, what will he say or think about you?
+5.	Tell me about your friends? How will you consider your inner circle?
+6.	What would you think you can learn from your sister and what she can learn from you?
+7.	How do you spend your free time? How much do you run for a day? Tell me about your routine?
+8.	How did you prepare for SSB? What are the sources you had? 
+9.	Questions related Indian navy like, Navy exercise? Ships? Aircraft Carriers? Submarines? Missiles? Navy Operations?
+10.	What are the three oceans surrounded by the peninsula? With directions?
+11.	What are the ports in eastern side apart from Chennai and Vishakhapatnam? What are the ports in western side apart from Mumbai and Kochi?
+12.	What are the sports that you are interested? Tell me if your team does not co-operate how will you tackle?
+13.	What kind of friends do you like to keep with you?
+14.	How does a computer understand the language given to it?
+15.	Tell me how can you attack the Indian navy website? Or what is the process behind it?
+16.	How many kilobytes is 1 byte in computer?
+17.	Explain your final year project? What is the mechanism behind it?
+
