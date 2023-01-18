@@ -11,4 +11,6 @@ Once getting the chest number we were separated into 3 rows: 1st – Freshers, 2
 
 In **OIR**, there were 2 tests. Each test for 25-30 mins and 60 questions each (a booklet was given, and we need to fill the OMR sheet to fill Ans).
 
-In **PPDT**, one picture was shown for 30 sec. Then we need to write a simple story for 4 min (I got a picture of a girl standing on a podium speaking and there were 2 other person standing at the back of the stage in front of audience).
+In **PPDT**, one picture was shown for 30 sec. Then we need to write a simple story for 4 min (I got a picture of a girl standing on a podium speaking and there were 2 other people standing at the back of the stage in front of audience).
+
+After a short tea break, we were split into 15 people and sent to start our group discussion. After the discussion, we went for lunch. Later, they announced the results. From the 98 only 25 got screened in including me.
