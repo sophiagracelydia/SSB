@@ -21,3 +21,11 @@ In **PPDT**, one picture was shown for 30 sec. Then we need to write a simple st
 After a short tea break, we were split into 15 people and sent to start our group discussion (First everyone needs to give self-written story and then the discussion starts). After the discussion, we went for lunch. Later, they announced the results. From the 98 only 25 got screened in including me (Chest No: 55).
 
 Then we got new chest numbers. This time my chest number was 6. We were asked to submit our phones after informing our families. We went to fill our PIQ forms directly after getting screened in. Then we were taken to the accommodation. By 7 PM we were asked to have dinner, I had severe cold and continuous sneeze at the end of the day. So, slept early to get energy for next day. 
+
+## Day 2
+On the next day, we were asked to complete our breakfast by 6.30AM and report at teat point. Then they took us to the AV hall for the psychology.
+
+### TAT – Thematic Appreciation Test
+### WAT – Word Association Test
+### SRT – Situation Reaction Test
+### SD – Self description   
