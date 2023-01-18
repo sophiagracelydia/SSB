@@ -43,4 +43,4 @@ In this section, we need to write 5 questions in 10 min.
 5.	What would you want to be in life? 
 
 ### Interview
-As soon as we completed the psychology test, they called few chest numbers to get ready for the interview. And I was the first person to get interviewed in my batch. 
+As soon as we completed the psychology test, they called few chest numbers to get ready for the interview. And I was the first person to get interviewed in my batch. The interview was all about the PIQ forms, General Knowledge, and defence related questions. 
