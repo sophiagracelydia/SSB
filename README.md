@@ -36,8 +36,11 @@ In this SRT, we will be given 60 different situations and we need to write sente
 
 ### SD (Self description)
 In this section, we need to write 5 questions in 10 min.
-1.	What do your parents think about yourself?|
-2.	What do your manager think about yourself?|
-3.	What do your colleague think about yourself?|
-4.	What do you think about yourself?|
-5.	What would you want to be in life?| 
+1.	What do your parents think about yourself?
+2.	What do your manager think about yourself?
+3.	What do your colleague think about yourself?
+4.	What do you think about yourself?
+5.	What would you want to be in life? 
+
+### Interview
+As soon as we completed the psychology test, they called few chest numbers to get ready for the interview. And I was the first person to get interviewed in my batch. 
