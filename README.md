@@ -13,4 +13,6 @@ In **OIR**, there were 2 tests. Each test for 25-30 mins and 60 questions each (
 
 In **PPDT**, one picture was shown for 30 sec. Then we need to write a simple story for 4 min (I got a picture of a girl standing on a podium speaking and there were 2 other people standing at the back of the stage in front of audience).
 
-After a short tea break, we were split into 15 people and sent to start our group discussion. After the discussion, we went for lunch. Later, they announced the results. From the 98 only 25 got screened in including me.
+After a short tea break, we were split into 15 people and sent to start our group discussion (First everyone needs to give self-written story and then the discussion starts). After the discussion, we went for lunch. Later, they announced the results. From the 98 only 25 got screened in including me (Chest No: 55).
+
+Then we got new chest numbers. This time my chest number was 6. We were asked to submit our phones after informing our families. We went to fill our PIQ forms directly after getting screened in. Then we were taken to the accommodation. By 7 PM we were asked to have dinner, I had severe cold and continuous sneeze at the end of the day. So, slept early to get energy for next day. 
