@@ -69,4 +69,3 @@ Few questions include: -
 After completing my interview for 1hour 30 min. Finally, he told me to do the remain tests well and asked to leave. I thanked him and left the room.
 
 ## Day 3
-
