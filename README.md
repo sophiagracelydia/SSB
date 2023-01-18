@@ -66,4 +66,7 @@ Few questions include: -
 18.	War between russia & Ukraine. Prime minister of Russia and Ukraine? 
 19.	Explain the Kargil war? What was the main purpose of that war and what was Indian navy part in that? 
 
+After completing my interview for 1hour 30 min. Finally, he told me to do the remain tests well and asked to leave. I thanked him and left the room.
+
+## Day 3
 
