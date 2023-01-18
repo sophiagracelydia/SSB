@@ -63,4 +63,7 @@ Few questions include: -
 15.	Tell me how can you attack the Indian navy website? Or what is the process behind it?
 16.	How many kilobytes is 1 byte in computer?
 17.	Explain your final year project? What is the mechanism behind it?
+18.	War between russia & Ukraine. Prime minister of Russia and Ukraine? 
+19.	Explain the Kargil war? What was the main purpose of that war and what was Indian navy part in that? 
+
 
