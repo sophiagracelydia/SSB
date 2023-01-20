@@ -92,7 +92,7 @@ In this activity, we were taken to a swamp land with start line. We were asked t
 **Blue** – Can be touched by candidates but not by load or helping material.\
 **White** - Can be touched by candidates, load and helping material.
 
-## Half Group Task
+### Half Group Task
 In the HGT, we were split into team of 2 in the existing team. Asked to complete crossing the finish line by giving solutions.
 
 ### GOR (Group Obstacle Race)
@@ -160,4 +160,6 @@ I was chest number 6. After chest number 5, they didn’t call me inside for mor
 **Officer**: Thank you. You can leave now.\
 **Me**: thank you sir. 
 
+After the conference. They made us to wait in a row of fives. We all were waiting for the most anticipated results. The commander came out with a file and gave us few words of encouragement to everyone. 
 
+Finally, he opened the file and read the three chest numbers (6, 15, 18). I was chest number 6. I was overwhelmed with tears and couldn’t control my tears. I informed my family and shared them. This was one of my most happiest day ever. 
