@@ -78,8 +78,17 @@ We had two topics for the group discussion. First topic can be selected by us. T
 **Topic 2**: What are the reasons for the crime against women in India?
 .
 ### GPE (Group Planning Exercise)
-In this activity, we were shown a big map and given 4 situations to act upon as team. First we have to pen down the individual solutions, then discuss the solutions with the team and come to one common solution. 
+In this activity, we were shown a big map and given 4 situations to act upon as team. First, we have to pen down the individual solutions, then discuss the solutions with the team and come to one common solution. 
 
+### PGT (Progressive Group task)
+In this activity, we were taken to a swamp land with start line. We were asked to complete to the finish line by crossing it. For challenge, there were some sets of rules which we need to follow. The colour on the rocks shows different instructions. 
+
+**Red** – Cannot be touched by candidates, load and helping material.
+**Blue** – Can be touched by candidates but not by load or helping material.
+**White** - Can be touched by candidates, load and helping material.
+
+### GOR (Group Obstacle Race)
+This race is also called as **Snake Race**. I enjoyed taking part in this activity was way more than other activity. Since this one is a team activity and a fierce competition between the 3 teams. We had a team shout out called “Dil Mangae More”. There will be series of obstacles, we have to carry the snake as a team and complete the race before the other teams.
 
 
 
