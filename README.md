@@ -13,7 +13,7 @@ On the first day we were asked to assemble in front of the SSB 12 selection boar
 Once getting the chest number we were separated into 3 rows: \
 1st – Freshers \
 2nd – Screened Out \
-3rd Repeaters \
+3rd Repeaters 
 
 Then we went to a big hall to complete filling our identification form, xerox copy of 10th, 12th, graduation, 8 semester marksheets and TA (For freshers). After completing our forms, we were taken to AV hall. They gave the instructions for the OIR & PPDT.
 
