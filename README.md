@@ -3,14 +3,19 @@
 Generally, SSB interview is conducted for 5 days in a stretch. Let me explain the entire process and my experience over it.
 * Day 1 - OIR & PPDT
 * Day 2 - Psychology Test (TAT, WAT, SRT, SD) + Interview
-* Day 3 - GTO 1(GD, GPE, PGPT, GOR, lecturette)
-* Day 4 - GTO 2(IO, HGT, CT, FGT)
+* Day 3 - GTO 1(GD, GPE, PGPT, HGT, GOR, lecturette)
+* Day 4 - GTO 2(IO, CT, FGT)
 * Day 5 - Conference
 
 ## Day 1
 On the first day we were asked to assemble in front of the SSB 12 selection board Bangalore at 6.AM [5th Nov 2022]. Then they asked us to show the application form, call up letter and 10th certificate. After the first round of verification completed, we were asked to have breakfast and came back for our chest numbers. There were 98 reported initially and my chest number was 55.
 
-Once getting the chest number we were separated into 3 rows: 1st – Freshers, 2nd – Screened Out and 3rd Repeaters. Then we went to a big hall to complete filling our identification form, xerox copy of 10th, 12th, graduation, 8 semester marksheets and TA (For freshers). After completing our forms, we were taken to AV hall. They gave the instructions for the OIR & PPDT.
+Once getting the chest number we were separated into 3 rows: \
+1st – Freshers \
+2nd – Screened Out \
+3rd Repeaters \
+
+Then we went to a big hall to complete filling our identification form, xerox copy of 10th, 12th, graduation, 8 semester marksheets and TA (For freshers). After completing our forms, we were taken to AV hall. They gave the instructions for the OIR & PPDT.
 
 ### OIR & PPDT (Officer's Intelligence Rating and Picture Perception and Description Test)
 
@@ -87,6 +92,9 @@ In this activity, we were taken to a swamp land with start line. We were asked t
 **Blue** – Can be touched by candidates but not by load or helping material.\
 **White** - Can be touched by candidates, load and helping material.
 
+## Half Group Task
+In the HGT, we were split into team of 2 in the existing team. Asked to complete crossing the finish line by giving solutions.
+
 ### GOR (Group Obstacle Race)
 This race is also called as **Snake Race**. I enjoyed taking part in this activity was way more than other activity. Since this one is a team activity and a fierce competition between the 3 teams. We had a team shout out called “Dil Mangae More”. There will be series of obstacles, we must carry the snake as a team and complete the race before the other teams.
 
@@ -106,4 +114,27 @@ On day 4, we started with second round of the group tasks. We assembled in the g
 There were instructions given for the obstacles and the marks for each were told. Since the previous night rained all the obstacles were very slippery to handle. There were total of 10 obstacles to be completed. I think I did around 5. 
 
 _Tiger leap, Double Platform Jump, Rope task, Double barrel jump and commando walk._
+
+### Command Task
+For the command task, each person will act as a command to give solutions by taking two team mates to solve it. It will happen for around 3 min. 
+
+### FGT (Full Group Task)
+This one is very similar to the PGT. In this activity, we were taken to a land with start line. We were asked to complete to the finish line by crossing it. For challenge, there were some sets of rules which we need to follow. The colour on the rocks shows different instructions. 
+
+With this the Group Task come to an end. Our GTO chatted with us and shared his experience in the Indian Navy. The day came to end, and we all had a great time in enjoying the last night as a 25 members team.
+
+## Day 5
+### Conference 
+At last, the most awaited D Day came to the picture. We were asked to assemble to the tea point with all our luggage’s before the conference. I was super nervous for this since all the officers will be in their uniforms and we will be entering one by one individually to the room.
+
+I was chest number 6. After chest number 5, they didn’t call me inside for more than 10 min. I was super stressed and nervous for this delay. Then they clicked the buzzer and I entered. For my surprise, the entire room felt so great and filled with officers in uniform.
+
+**Me**: Good Morning Sir! \
+**Officer**: Hello Sophia, Good Morning. Please sit down. \
+**Me**: Thank you Sir. \
+**Officer**: So, Sophia you are runner up in group discussion in your school and here also you have managed to get the first mark in the GD. How come it is possible? \
+**Me**: Thank you sir. First, group discussion is a platform to share everyone’s thought and to hear them out. I left space for others to talk, and I asked them to let me speak. \
+**Officer**: Okay, hmm...well that’s not how the GD works (with a smile). So, tell me the Individual tasks and the tasks which you liked a lot. \
+**Me**: Sir, Individual task was quite challenging for me, and I think I did well. I really enjoyed the snake race where we need to compete with others and won. \
+**Officer**: Okay. \
 
