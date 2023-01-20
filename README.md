@@ -162,4 +162,4 @@ I was chest number 6. After chest number 5, they didn’t call me inside for mor
 
 After the conference. They made us to wait in a row of fives. We all were waiting for the most anticipated results. The commander came out with a file and gave us few words of encouragement to everyone. 
 
-Finally, he opened the file and read the three chest numbers (6, 15, 18). I was chest number 6. I was overwhelmed with tears and couldn’t control my tears. I informed my family and shared them. This was one of my most happiest day ever. 
+Finally, he opened the file and read the three chest numbers (6, 15, 18). I was chest number 6. I was overwhelmed with tears and couldn’t control my tears. I informed my family and shared them. This was one of my happiest day ever. 
