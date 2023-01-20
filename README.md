@@ -131,10 +131,33 @@ I was chest number 6. After chest number 5, they didn’t call me inside for mor
 
 **Me**: Good Morning Sir! \
 **Officer**: Hello Sophia, Good Morning. Please sit down. \
-**Me**: Thank you Sir. \
+**Me**: Thank you Sir. 
+
 **Officer**: So, Sophia you are runner up in group discussion in your school and here also you have managed to get the first mark in the GD. How come it is possible? \
-**Me**: Thank you sir. First, group discussion is a platform to share everyone’s thought and to hear them out. I left space for others to talk, and I asked them to let me speak. \
+**Me**: Thank you sir. First, group discussion is a platform to share everyone’s thought and to hear them out. I left space for others to talk, and I asked them to let me speak. 
+
 **Officer**: Okay, hmm...well that’s not how the GD works (with a smile). So, tell me the Individual tasks and the tasks which you liked a lot. \
-**Me**: Sir, Individual task was quite challenging for me, and I think I did well. I really enjoyed the snake race where we need to compete with others and won. \
-**Officer**: Okay. \
+**Me**: Sir, Individual task was quite challenging for me, and I think I did well. I really enjoyed the snake race where we need to compete with others and won. 
+
+**Officer**: Okay. So, do you have many friends or limited? \
+**Me**: Sir, I do speak with everyone and friendly. But I keep very limited friends in my close friends list.
+
+**Officer**: Did you make friends here? \
+**Me**: Yes Sir. I made many friends from different states. 
+
+**Officer**: Can anyone be in your inner circle? \
+**Me**: Yes, Sir. My roommate number 7 can fit in my inner circle.
+
+**Officer**: Did you attend any other competitive exams before? \
+**Me**: Yes Sir. I attended AFCAT twice and CDS once but couldn’t be able to clear it. Since I needed more practice.
+
+**Officer**: Okay. Tell me when you’re in a team will you get help, or you will help others?\
+**Me**: Sir, both will happen. I will help others and will get help when needed.
+
+**Officer**: How was your stay in the campus? Do you want to change anything?\
+**Me**: Sir, I really enjoyed staying here. I think everything here is already very good.
+
+**Officer**: Thank you. You can leave now.\
+**Me**: thank you sir. 
+
 
