@@ -69,3 +69,7 @@ Few questions include: -
 After completing my interview for 1hour 30 min. Finally, he told me to do the remain tests well and asked to leave. I thanked him and left the room.
 
 ## Day 3
+All the ground tasks started on the D-3. We were asked to assemble to the ground around 6 AM in the morning wearing white track and t-shirt. The GT were conducted in many aspects to check our team spirit and individual capacity. All the 25, we were split into 3 teams.
+
+## GD 1 (Group Discussion)
+
