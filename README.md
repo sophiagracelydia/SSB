@@ -71,5 +71,15 @@ After completing my interview for 1hour 30 min. Finally, he told me to do the re
 ## Day 3
 All the ground tasks started on the D-3. We were asked to assemble to the ground around 6 AM in the morning wearing white track and t-shirt. The GT were conducted in many aspects to check our team spirit and individual capacity. All the 25, we were split into 3 teams.
 
-## GD 1 (Group Discussion)
+### GD (Group Discussion)
+We had two topics for the group discussion. First topic can be selected by us. The second topic is given by the GTO. Both the discussions were held for around 10-15 min without conclusion
+
+**Topic 1**: Government has provided several schemes for women benefits what are your views on triple talak, Beti bacha Beti and women in NDA?
+**Topic 2**: What are the reasons for the crime against women in India?
+.
+### GPE (Group Planning Exercise)
+In this activity, we were shown a big map and given 4 situations to act upon as team. First we have to pen down the individual solutions, then discuss the solutions with the team and come to one common solution. 
+
+
+
 
