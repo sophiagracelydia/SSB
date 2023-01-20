@@ -88,7 +88,13 @@ In this activity, we were taken to a swamp land with start line. We were asked t
 **White** - Can be touched by candidates, load and helping material.
 
 ### GOR (Group Obstacle Race)
-This race is also called as **Snake Race**. I enjoyed taking part in this activity was way more than other activity. Since this one is a team activity and a fierce competition between the 3 teams. We had a team shout out called “Dil Mangae More”. There will be series of obstacles, we have to carry the snake as a team and complete the race before the other teams.
+This race is also called as **Snake Race**. I enjoyed taking part in this activity was way more than other activity. Since this one is a team activity and a fierce competition between the 3 teams. We had a team shout out called “Dil Mangae More”. There will be series of obstacles, we must carry the snake as a team and complete the race before the other teams.
 
+### Lecturette
+For this activity, we were asked to take a card in which 4 topics will be given in the order of difficult to easy. We get 3 min to prepare and deliver the speech for 3 min. My topics include are:
+1.	Aviation in India.
+2.	Constitution in India.
+3.	Energy Efficient vehicles. (I picked this topic and spoke for 3 min)
+4.	YouTube vloggers
 
 
