@@ -97,4 +97,5 @@ For this activity, we were asked to take a card in which 4 topics will be given 
 3.	Energy Efficient vehicles. (I picked this topic and spoke for 3 min)
 4.	YouTube vloggers
 
+With these activities the day came to an end. The remaining candidates who didn’t give the interview were called post lunch.
 
