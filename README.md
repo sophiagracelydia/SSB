@@ -99,3 +99,11 @@ For this activity, we were asked to take a card in which 4 topics will be given 
 
 With these activities the day came to an end. The remaining candidates who didn’t give the interview were called post lunch.
 
+## Day 4
+On day 4, we started with second round of the group tasks. We assembled in the group around 6 Am. The weather was so chill and cold. Everyone was asked to do some warmups before the individual obstacles.
+
+### Individual Obstacles
+There were instructions given for the obstacles and the marks for each were told. Since the previous night rained all the obstacles were very slippery to handle. There were total of 10 obstacles to be completed. I think I did around 5. 
+
+_Tiger leap, Double Platform Jump, Rope task, Double barrel jump and commando walk._
+
