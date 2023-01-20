@@ -83,8 +83,8 @@ In this activity, we were shown a big map and given 4 situations to act upon as 
 ### PGT (Progressive Group task)
 In this activity, we were taken to a swamp land with start line. We were asked to complete to the finish line by crossing it. For challenge, there were some sets of rules which we need to follow. The colour on the rocks shows different instructions. 
 
-**Red** – Cannot be touched by candidates, load and helping material.
-**Blue** – Can be touched by candidates but not by load or helping material.
+**Red** – Cannot be touched by candidates, load and helping material.\
+**Blue** – Can be touched by candidates but not by load or helping material.\
 **White** - Can be touched by candidates, load and helping material.
 
 ### GOR (Group Obstacle Race)
